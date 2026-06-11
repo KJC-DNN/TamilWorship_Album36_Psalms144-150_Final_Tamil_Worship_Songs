@@ -1,8 +1,8 @@
 # ராஜாவான என் தேவனே | My God, the King | Album 36 Song 2
 
-Tamil: ஆல்பம் 36 பாடல் 2 – ராஜாவான என் தேவனே (சங்கீதம் 145). தினசரி துதி மற்றும் கர்த்தரின் மகத்துவத்தைப் போற்றும் பாடல்.
+ஆல்பம் 36 பாடல் 2 – ராஜாவான என் தேவனே (சங்கீதம் 145). தினசரி துதி மற்றும் கர்த்தரின் மகத்துவத்தைப் போற்றும் பாடல்.
 
-English: Album 36 Song 2 – My God, the King (Psalm 145). A daily praise song exalting God’s greatness, compassion, and eternal kingdom.
+Album 36 Song 2 – My God, the King (Psalm 145). A daily praise song exalting God’s greatness, compassion, and eternal kingdom.
 
 Study Note
 Psalm 145 is an acrostic psalm of praise where David exalts the Lord as King. It highlights God’s unsearchable greatness, compassion, righteousness, and nearness to those who call on Him. It declares the Lord’s everlasting dominion and faithfulness to all generations.
